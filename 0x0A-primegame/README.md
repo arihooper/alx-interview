@@ -1,1 +1,1 @@
-Primegamre
+Prime Game!

@@ -1,1 +1,1 @@
-My_0x08-making_change_Project.
+My_0x08-making_change project
